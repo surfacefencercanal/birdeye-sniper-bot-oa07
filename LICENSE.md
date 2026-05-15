@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with high-frequency birdeye sniper bot | blockchain-scanning + token-launch-monitoring, the #1 birdeye sniper bot. Includes blockchain-scanning and
 
 
 
